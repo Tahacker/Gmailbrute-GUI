@@ -2,8 +2,8 @@
 Cracked Gmail !!
 
 
-1- put it Target Email 
+1- put  Target Email 
 <br> </br>
-2- put it List passwords 
+2- put  List passwords 
 
 Happy Cracked !
